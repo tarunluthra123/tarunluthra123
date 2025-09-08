@@ -4,15 +4,10 @@
 
   
 
-- 👨‍💻 All of my projects are available at [https://tarunluthra.in/](https://tarunluthra.in/)
-
+- 👨‍💻 All of my projects & articles are available at [https://andromedus.in/](https://andromedus.in/)
   
 
-- 📝 Read my articles on  [https://blog.tarunluthra.in/](https://blog.tarunluthra.in/)
-
-  
-
-- 📫 How to reach me **tarunluthra@pm.me**
+- 📫 How to reach me **tluthra987@gmail.com**
 
   
 
